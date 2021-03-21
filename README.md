@@ -1,0 +1,2 @@
+# pusing
+Pusing banget aing
